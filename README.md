@@ -1,1 +1,1 @@
-# Lucky-777-Slot-
+This project is NOT open source. Redistribution is strictly prohibited.
